@@ -5,4 +5,4 @@ This is my place to store part of my coding (mis)adventures. Me, a professional 
 My motto: *"The best things in life are oftentimes left unsaid."*
 
 
-Want more bad takes and good TV show recommendations? Send me a message on Telegram @ [hous3m4ster](https://t.me/hous3m4ster/)
+Want more bad takes and good TV show recommendations? Tough luck
